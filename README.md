@@ -1,5 +1,5 @@
 # hellooo idk how to create this shit so i'll just add silly pictures here
-i really love kaveh and he's my fav boy but i couldn't find any stamps w him 
+i really love kaveh and he's my fav boy but i couldn't find any stamps w him  
 
 <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/5Qv6BVr2/dhqquoz-e8e73099-d3fe-4af0-99aa-def2b546f7a2.gif' border='0' alt='dhqquoz-e8e73099-d3fe-4af0-99aa-def2b546f7a2'></a> <a href='https://postimages.org/' target='_blank'><img src='https://i.postimg.cc/zVCy3qWd/dhqrfs1-e4e9ca63-3ef7-428c-aa66-d0f81ee9708a.gif' border='0' alt='dhqrfs1-e4e9ca63-3ef7-428c-aa66-d0f81ee9708a'></a> i love themmmmm
  
